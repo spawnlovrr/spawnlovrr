@@ -1,8 +1,6 @@
-![tumblr_46cdd093c7b2372995c1fab9e9e26722_3b997772_1280-1-2-3](https://github.com/user-attachments/assets/d7b3fa6f-606a-4958-a2a8-bcbb10c2508f)
-![42_sin_titulo_20240601115842](https://github.com/user-attachments/assets/7ddfca8f-ca33-468a-9a30-119e7808fa7f)
-![tumblr_8f0a96e6c64b19f180b2b522aaf3bb61_c43b89ef_1280-1-1](https://github.com/user-attachments/assets/44ff1dc1-d121-4bb3-9615-666884bb8794)
-![Azure x two time (4)](https://github.com/user-attachments/assets/cf2a9a55-82d6-4b6e-8631-5a2c20341183)
-![tumblr_8f0a96e6c64b19f180b2b522aaf3bb61_c43b89ef_1280-1-1](https://github.com/user-attachments/assets/7a4999eb-b7d5-464b-8ff8-3a3d30204bac)
-![42_sin_titulo_20240601115842](https://github.com/user-attachments/assets/3a3b4bf6-08fd-41c0-a7b6-f4ca5b714af8)
-![tumblr_46cdd093c7b2372995c1fab9e9e26722_3b997772_1280-1-2-3](https://github.com/user-attachments/assets/877b2d94-3fbd-4d7c-98e2-f986401b2166)
-I love TwoTime btww
+<img width="550" height="275" alt="164 sin título_20250811203841" src="https://github.com/user-attachments/assets/ea4f1cc3-bf50-4a35-b6ed-78f8c9fc38aa" />
+<img width="2410" height="998" alt="42_sin_titulo_20240601115842" src="https://github.com/user-attachments/assets/874c4886-da4a-4ae4-b524-0e103bb14287" />
+<img width="1280" height="186" alt="171 sin título_20250811210640" src="https://github.com/user-attachments/assets/b5a32fbb-67a9-4e41-b5b8-f0f56c1df90b" />
+<img width="952" height="650" alt="168 sin título_20250811205335" src="https://github.com/user-attachments/assets/8eb13456-f3a3-4762-8e4b-851abbe4ee59" />
+<img width="1280" height="186" alt="167 sin título_20250811204030" src="https://github.com/user-attachments/assets/b881ef6b-6db1-4ae1-9557-f6049b186823" />
+<img width="550" height="275" alt="164 sin título_20250811203841" src="https://github.com/user-attachments/assets/ff4d5f2c-8ffd-474c-bffe-44b804872cb9" />
